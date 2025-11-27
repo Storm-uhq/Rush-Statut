@@ -1,1 +1,1 @@
-# slayy-shop-loaders
+# Rush Statut
